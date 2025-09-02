@@ -47,4 +47,4 @@ Atualmente curso **Sistemas de Informação** e me preparo para certificações 
 📧 amscdosreis@gmail.com  
 📱 (21) 99579-2630  
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/amanda-schulze-3b23941a1?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app))  
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-blue?style=for-the-badge&logo=linkedin)](https://www.linkedin.com/in/amanda-schulze-3b23941a1?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
